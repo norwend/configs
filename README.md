@@ -1,2 +1,2 @@
-# configs
-My configs for random things
+##ты че ебанутый
+нахуй ты это читаешь
